@@ -1,1 +1,1 @@
-# Academic-Journal-of-Medical-Sciences-
+# Academic Journal of Medical Sciences
